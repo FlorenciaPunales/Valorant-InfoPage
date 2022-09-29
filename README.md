@@ -1,1 +1,1 @@
-# Valorant-
+# Valorant-InfoPage
